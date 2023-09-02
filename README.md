@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zaynlham
+- 👀 I’m interested in new technologies,development,learning stuffs and quick action takings.
+- 🌱 I’m currently learning computer studies,web development,situation handling, much more!
+- 💞️ I’m looking to collaborate on  Any development project.
+- 📫 How to reach me MOBILE NO>:- 8104152806 (India).
